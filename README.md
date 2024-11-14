@@ -75,7 +75,7 @@ do you want Seed Aim
 check the new app here
 
 ## Crypto Sharknet:
-<img src="Crypto_Sharknet_5.png">
+<img src="Promo_Discount_1.png">
 
 
 ## Crypto Sharknet :
@@ -100,7 +100,7 @@ What are you waiting for ⁉️🤨
 Find wallets with me 👉
 
 ## Crypto Sharknet :
-<img src="Promo_Discount_1.png">
+<img src="Promo_Discount_3.png">
 
 ### Hi. I'm Hambali Developers 
 
