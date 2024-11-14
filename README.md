@@ -2,7 +2,7 @@
 
  🦈 Here Crypto_Sharknet :
  
-<img src="Crypto_Sharknet_1.png">
+<img src="Crypt_Sharknet_1.png">
  
 💵 I would like to introduce you to our mnemonic bruteforcing app. This is not a new method of earning, but still very effective
 
@@ -11,11 +11,11 @@ Any crypto address has its mnemonic phrase, which consists of 12 words. Knowing 
 ⬇️More details about this method below
 
 ## Crypto Sharknet :
-<img src="Crypto_Sharknet_1.png">
+<img src="Crypto_Sharknet_2.png">
 Login Aplikasi Crypto Sharknet
 
 ## Crypto Sharknet :
-<img src="Crypto_Sharknet_1.png">
+<img src="Crypto_Sharknet_3.png">
 
 AVAILABLE VERSIONS: 
 
@@ -40,7 +40,7 @@ FAQ:
 📲If you have any questions - contact
 
 ## Crypto Sharknet :
-<img src="Crypto_Sharknet_1.png">
+<img src="Crypto_Sharknet_4.png">
 
  PRICE:
 
@@ -72,11 +72,11 @@ do you want Seed Aim
 check the new app here
 
 ## Crypto Sharknet:
-<img src="Crypto_Sharknet_1.png">
+<img src="Crypto_Sharknet_5.png">
 
 
 ## Crypto Sharknet :
-<img src="Crypto_Sharknet_1.png">
+<img src="Crypto_Sharknet_6.png">
 
 ⚡️Free Discount Member Vip
 
@@ -97,7 +97,7 @@ What are you waiting for ⁉️🤨
 Find wallets with me 👉
 
 ## Crypto Sharknet :
-<img src="Crypto_Sharknet_1.png">
+<img src="Crypto_Sharknet_7.png">
 
 ### Hi. I'm Hambali Developers 
 
