@@ -76,7 +76,7 @@ check the new app here
 
 
 ## Crypto Sharknet :
-<img src="Crypto_Sharknet_6.png">
+<img src="Promo_Discount_1.png">
 
 ⚡️Free Discount Member Vip
 
@@ -97,7 +97,7 @@ What are you waiting for ⁉️🤨
 Find wallets with me 👉
 
 ## Crypto Sharknet :
-<img src="Crypto_Sharknet_7.png">
+<img src="Promo_Discount_2.png">
 
 ### Hi. I'm Hambali Developers 
 
